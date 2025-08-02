@@ -1,4 +1,4 @@
 ✧⭒ 
-read my strawpage before u interact!! hehe
-<img width="735" height="880" alt="image" src="https://github.com/user-attachments/assets/5e617465-d6bb-4772-af12-cb1546e82cdc" />
+sign my strawpage & atabook
 
+<img width="593" height="911" alt="image" src="https://github.com/user-attachments/assets/de85f5e1-3047-4625-966d-d0d2bd0b8d6c" />
