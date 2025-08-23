@@ -1,8 +1,7 @@
 ✧⭒ 
 hey hey hey!!!
-if ur done reading this when whisper 2 me " ujishima"
-
-
+if ur done reading this when whisper 2 me "ujishima"
+![](https://komarev.com/ghpvc/?username=your-github-username&style=flat-square)
 <img width="719" height="548" alt="image" src="https://github.com/user-attachments/assets/ddc145dd-b5d7-4f7c-b03f-e03127430e6b" />
 
 <img width="360" height="360" alt="image" src="https://github.com/user-attachments/assets/18563141-e9bc-4d9e-b201-a64b2f582d82" />
