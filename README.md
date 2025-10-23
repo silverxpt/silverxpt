@@ -1,6 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=your-github-silverxpt)
 
-Read my strawpage and sign ata 
+
 ────୨ৎ────
 
 
