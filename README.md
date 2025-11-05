@@ -2,8 +2,12 @@
 ── .✦             ⋮ ⌗ ┆
 
 
-
-
+ [atabook](https://silverxptx.atabook.org/).
+[strawpage](https://silverxptsx.straw.page/).
+[pronouns page](https://en.pronouns.page/@silverxpt)
+[guns.lol](https://guns.lol/silverxpt).
+       
+          
           silver's  domain  ( sign ata ,  strawpage  )  (i loveeee my moots  !! )
             ──── ୨୧ ────
 
