@@ -8,13 +8,14 @@
 [guns.lol](https://guns.lol/silverxpt).
        
           
-          silver's  domain  ( sign ata ,  strawpage  )  (i loveeee my moots  !! )
-            ──── ୨୧ ────
+           ( sign ata ,  strawpage  )  
+            
 
 
 
 
-<img width="526" height="414" alt="image" src="https://github.com/user-attachments/assets/825e682f-b5ab-45e0-b351-66ac2a3c130e" />
+<img width="828" height="402" alt="image" src="https://github.com/user-attachments/assets/2fdd6af7-0f94-43fe-a2f5-35df37d799ad" />
+
 
           
           
